@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Sunit Modak
-**Data Science Undergraduate || Machine Learning || Python || SQL**  
+**Data Science Undergraduate || Machine Learning || C || C++ || Python || Java || SQL**  
 **Focused on predictive modeling, data analysis, and real-world datasets**
 
 Email Me 👉 ✉️ **sunitmodak1984@gmail.com** For Collaboration/Project or Anything Else. 😊😊
