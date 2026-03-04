@@ -4,7 +4,6 @@
 
 Email Me 👉 ✉️ **sunitmodak1984@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** Jarvis AI Assistant
 - 🌱 **I’m currently learning:** Data Science and AI/ML
 - 👯 **I’m looking to collaborate on:** In ai Assistant Project 
 - 📫 **How to reach me:** sunitmodak1984@gmail.com
