@@ -8,7 +8,7 @@ Email Me 👉 ✉️ **sunitmodak1984@gmail.com** For Collaboration/Project or A
 - 👯 **I’m looking to collaborate on:** In ai Assistant Project 
 - 📫 **How to reach me:** sunitmodak1984@gmail.com
 - 😄 **Pronouns:** he/him
-- ⚡ **Fun fact:** I Love Tech and Tech Love Me
+- ⚡ **Fun fact:** Passionate about building things with code.
 
 
 ## 🌐 Socials:
